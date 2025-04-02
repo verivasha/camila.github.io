@@ -1,1 +1,1 @@
-# verivasha.github.io
+# veritasha.github.io
